@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Adharamd
+- 👀 I’m interested in Paraphernalia pertaining to Product Management
+- 🌱 I’m currently learning Product Management through many resources
+- 💞️ I’m looking to collaborate on learning prototyping and scrum planning
+- 📫 Please connect with me on my LinkedIn, https://www.linkedin.com/in/abhishek-dharamdas/ and abhinomics on Instagram
